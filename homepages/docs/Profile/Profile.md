@@ -1,2 +1,0 @@
-# Profile
-Board Certified Pediatrician
